@@ -1,0 +1,1 @@
+# sk_technologies_final_task
